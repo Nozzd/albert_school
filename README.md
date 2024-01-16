@@ -1,0 +1,3 @@
+# albert_school
+
+"uhbeiyuuiygiughig"
